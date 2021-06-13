@@ -1,3 +1,6 @@
+![Screenshot (24)](https://user-images.githubusercontent.com/65371950/121818120-e85b5500-cca2-11eb-8dd3-45f181a3a263.png)
+![Screenshot (25)](https://user-images.githubusercontent.com/65371950/121818125-ef826300-cca2-11eb-9266-1715bc0bad80.png)
+![Screenshot (26)](https://user-images.githubusercontent.com/65371950/121818127-f14c2680-cca2-11eb-8fb8-53ee39ab5237.png)
 
 https://user-images.githubusercontent.com/65371950/121818051-8b5f9f00-cca2-11eb-90ce-df17553e9c67.mp4
 
